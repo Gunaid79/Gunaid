@@ -1,2 +1,2 @@
 # Gunaid
-Hello this Gunaid from Michigan 
+Hello Gunaid from Michigan 
